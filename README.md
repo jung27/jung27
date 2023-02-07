@@ -1,4 +1,6 @@
-### Hi there 👋
+### 나.
 
 - like a beggar...
-
+- seed horn
+- i have a headache
+- SOS
